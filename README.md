@@ -2,6 +2,6 @@
 
 Sou o Nicolas, se eu pudesse dar um salto até a lua, eu seria o homem mais feliz da terraKKK
 
-Estudo na escola [Nicota](instagram/escola.donanicota)
+Estudo nessa bela e organizada esocolinha=) [Nicota](instagram/escola.donanicota)
 
 ![](https://media.tenor.com/ev8UUqNOIm0AAAAi/snoop-dogg-dance.gif)
