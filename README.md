@@ -1,6 +1,6 @@
-## Olá, seja Bem vindo ao meu perfil! 👋
+## Bom dia, boa tarde e boa noite, esse é meu humilde perfil. 😁
 
-Sou o `Nícolas`
+Sou o Nicolas, se eu pudesse dar um salto até a lua, eu seria o homem mais feliz da terraKKK
 
 Estudo na escola [Nicota](instagram/escola.donanicota)
 
